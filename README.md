@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @asta023
+- 👀 I’m interested in.. Eh?, open to everthing
+- 🌱 I’m currently learning python
+- 📫 How to reach me ... plz don't
